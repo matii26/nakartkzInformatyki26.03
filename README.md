@@ -1,0 +1,1 @@
+# nakartkzInformatyki26.03
